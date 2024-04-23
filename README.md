@@ -1,1 +1,0 @@
-# vitalyascheulov.github.io
